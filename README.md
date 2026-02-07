@@ -7,3 +7,25 @@
 ## Bildung ist Verteidigung
 
 ## Demokratie funktioniert nicht ohne Bildung
+
+## Wahrheit
+
+### Es gibt Wahrheiten die nicht einfach geleugnet werden können
+
+### Gefühlte Wahrheit ist keine Wahrheit
+
+## Lügen sind Lügen
+
+## Psychologie
+
+## Philosophie 
+
+## Medienkompetenz
+
+## Sozialer Umgang
+
+## Mindeststandard
+
+## Metriken
+
+## Der Mensch ist die Schwachstelle
