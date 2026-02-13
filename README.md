@@ -6,6 +6,10 @@
 
 ## Bildung ist Verteidigung
 
+Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist dad Volk in der Lage den Versuchungen des Populismus zu widerstehen.
+
+## Bildung ist kein Thema für Konkurrenz zwischen Nationen
+
 ## Demokratie funktioniert nicht ohne Bildung
 
 ## Wahrheit
