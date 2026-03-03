@@ -10,6 +10,8 @@ Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist
 
 ## Bildung ist kein Thema für Konkurrenz zwischen Nationen
 
+Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, muss auch ein Interesse daran haben, dass die anderen Länder einen hohen Bildungsstand haben. 
+
 ## Demokratie funktioniert nicht ohne Bildung
 
 ## Wahrheit
