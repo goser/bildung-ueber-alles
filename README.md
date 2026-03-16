@@ -4,11 +4,15 @@
 
 ## Was ist mit Bildung gemeint?
 
+Der Begriff soll hier sowohl das Erlernen von Faktenwissen als auch die Aneignung von sozialen Fähigkeiten umfassen. Reine Fakten reichen nicht aus um eine Gesellschaft zusammenhalten zu lassen. 
+
 ## Ist "über alles" nicht etwas zu doll?
+
+Auf keinen Fall. Wenn die Menschheit irgendeine Bedeutung haben soll, dann ist es zwingend notwendig die Bildung zu priorisieren. Anders wird es die Menschheit nicht schaffen, sich nicht selbst zu vernichten, bevor sie Bedeutung erreicht hat. 
 
 ## Bildung ist Verteidigung
 
-Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist dad Volk in der Lage den Versuchungen des Populismus zu widerstehen.
+Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist dad Volk in der Lage den Versuchungen des Populismus zu widerstehen. 
 
 ## Bildung ist kein Thema für Konkurrenz zwischen Nationen
 
