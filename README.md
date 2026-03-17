@@ -20,13 +20,21 @@ Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, mu
 
 ## Demokratie funktioniert nicht ohne Bildung
 
+Wenn der Bildungsgrad zu niedrig ist, erkennt die Gesellschaft eventuell zu spät, wenn antidemokratische Entwicklungen vor sich gehen. 
+
 ## Wahrheit
 
 ### Es gibt Wahrheiten die nicht einfach geleugnet werden können
 
+
+
 ### Gefühlte Wahrheit ist keine Wahrheit
 
-## Lügen sind Lügen
+
+
+### Fake News gibt es nicht
+
+Der Begriff ist eine Erfindung derer, die die Glaubwürdigkeit aller Medien untergraben wollen. Er sollte daher von legitimen Medien und Menschen die an der Wahrheit interessiert sind, nicht verwendet werden. Der Begriff wurde im Endeffekt verwendet um legitimen Nachrichten der Lüge zu besichtigen ohne zu sagen, dass  sie lügen würden. Ich vermute, dass man sich auf diese Art rechtlich wenig weniger angreifbar machen wollte.
 
 ## Psychologie
 
