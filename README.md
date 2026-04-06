@@ -12,11 +12,11 @@ Auf keinen Fall. Wenn die Menschheit irgendeine Bedeutung haben soll, dann ist e
 
 ## Bildung ist Verteidigung
 
-Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist dad Volk in der Lage den Versuchungen des Populismus zu widerstehen. 
+Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist das Volk in der Lage den Versuchungen des Populismus zu widerstehen.
 
 ## Bildung ist kein Thema für Konkurrenz zwischen Nationen
 
-Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, muss auch ein Interesse daran haben, dass die anderen Länder einen hohen Bildungsstand haben. 
+Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, muss auch ein Interesse daran haben, dass die anderen Länder einen hohen Bildungsstand haben. Es reicht nicht das eigene Land gegen Populismus zu wappnen. Wenn andere Länder dem Populismus zum Opfer fallen wirkt sich dies indirekt auf das eigene Land aus. 
 
 ## Demokratie funktioniert nicht ohne Bildung
 
