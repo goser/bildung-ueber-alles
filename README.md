@@ -42,6 +42,10 @@ Der Begriff ist eine Erfindung derer, die die Glaubwürdigkeit aller Medien unte
 
 ## Medienkompetenz
 
+Um mit der wachsenden Flut an medialen Eindrücken zurecht zu kommen, müssen alle Menschen lernen welcher Mechanismen und Werkzeuge sich Populisten bzw. "Meinungsmacher" bedienen um Menschen zu beeinflussen. 
+
+Je mehr Menschen in der Lage sind Manipulationsversuche intuitiv und ohne großen mentalen Aufwand zu erkennen und die Quelle entsprechend herabzustufen, desto weniger verbreiten sich Lügen und Unwahrheiten.
+
 ## Sozialer Umgang
 
 ## Mindeststandard
