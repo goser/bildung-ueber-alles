@@ -4,7 +4,7 @@
 
 ## Was ist mit Bildung gemeint?
 
-Der Begriff soll hier sowohl das Erlernen von Faktenwissen als auch die Aneignung von sozialen Fähigkeiten umfassen. Reine Fakten reichen nicht aus um eine Gesellschaft zusammenhalten zu lassen. 
+Der Begriff soll hier sowohl das Erlernen von Faktenwissen als auch die Aneignung von sozialen Fähigkeiten umfassen.
 
 ## Ist "über alles" nicht etwas zu doll?
 
@@ -16,21 +16,17 @@ Nur wenn das Bildungsniveau eine gewisse Sättigung in der Bevölkerung hat, ist
 
 ## Bildung ist kein Thema für Konkurrenz zwischen Nationen
 
-Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, muss auch ein Interesse daran haben, dass die anderen Länder einen hohen Bildungsstand haben. Es reicht nicht das eigene Land gegen Populismus zu wappnen. Wenn andere Länder dem Populismus zum Opfer fallen wirkt sich dies indirekt auf das eigene Land aus. 
+Jedes Land das ein Interesse an langfristiger Sicherheit und Stabilität hat, muss auch ein Interesse daran haben, dass alle anderen Länder einen hohen Bildungsstand haben. Es reicht nicht das eigene Land gegen Populismus zu wappnen. Wenn andere Länder dem Populismus zum Opfer fallen wirkt sich dies indirekt auf das eigene Land aus. 
 
 ## Demokratie funktioniert nicht ohne Bildung
 
-Wenn der Bildungsgrad zu niedrig ist, erkennt die Gesellschaft eventuell zu spät, wenn antidemokratische Entwicklungen vor sich gehen. 
+Wenn der Bildungsgrad zu niedrig ist, erkennt die Gesellschaft eventuell zu spät, wenn antidemokratische Entwicklungen vor sich gehen. Demokratie ohne Bildung ist anfällig dafür, von Kräften die Macht/Einfluss haben, zersetzt zu werden.
 
 ## Wahrheit
 
 ### Es gibt Wahrheiten die nicht einfach geleugnet werden können
 
-
-
 ### Gefühlte Wahrheit ist keine Wahrheit
-
-
 
 ### Fake News gibt es nicht
 
@@ -48,8 +44,12 @@ Je mehr Menschen in der Lage sind Manipulationsversuche intuitiv und ohne große
 
 ## Sozialer Umgang
 
+Ein sozialer Umgang wird von vielen Menschen, vor allem  Älteren, vorausgesetzt. Das funktioniert aber nur solange, wie auch derjenige der dieses erwartet, einen sozialen Umgang pflegt.
+
 ## Mindeststandard
 
 ## Metriken
 
 ## Der Mensch ist die Schwachstelle
+
+Menschen neigen dazu soziales Verhalten von anderen zu erwarten, in der richtigen Situation aber zu den eigenen Gunsten auf selbiges zu verzichten.
