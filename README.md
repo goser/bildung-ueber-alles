@@ -34,6 +34,8 @@ Der Begriff ist eine Erfindung derer, die die Glaubwürdigkeit aller Medien unte
 
 ## Psychologie
 
+Bildung sollte auch immer Grundlagen der Psychologie umfassen. Zumindest soweit, dass die Menschen in der Lage sind die Mechanismen hinter ihrem eigenen Handeln reflektieren zu können und das Verhalten anderer besser zu verstehen.
+
 ## Philosophie 
 
 ## Medienkompetenz
