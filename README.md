@@ -52,6 +52,8 @@ Ein sozialer Umgang wird von vielen Menschen, vor allem  Älteren, vorausgesetzt
 
 ## Metriken
 
+Es ist nicht hilfreich den Erfolg von Bildung anhand direkter Metriken, seien es Noten oder Punktzahlen zu messen. Dieser Ansatz würde wieder nur dazu führen, daß Leute das System zu ihrem Vorteil versuchen auszuspielen. Es muss ein mentaler Shift hin zu Bildung als unmessbares Gut zu sehen.
+
 ## Der Mensch ist die Schwachstelle
 
 Menschen neigen dazu soziales Verhalten von anderen zu erwarten, in der richtigen Situation aber zu den eigenen Gunsten auf selbiges zu verzichten.
